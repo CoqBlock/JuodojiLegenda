@@ -1,2 +1,1 @@
-# JuodojiLegenda
-hexas gaming
+# Juodaodžių teisės
